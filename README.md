@@ -1,1 +1,1 @@
-No, its a pimp named slickback
+No, it's a pimp named slickback
